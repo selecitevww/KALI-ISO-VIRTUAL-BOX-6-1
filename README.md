@@ -43,3 +43,7 @@ Enjoykin — Брат
 
 DDU 15:
 > https://drive.google.com/file/d/1-OHrXaiE4aqrsQF8LhOQEzRnpR-cVBVz/view?usp=sharing
+
+
+Autoclicker:
+> https://drive.google.com/file/d/1SFqaIrlFc-bvpQ31PTN-F8Dpn0jw6y9s/view?usp=sharing
