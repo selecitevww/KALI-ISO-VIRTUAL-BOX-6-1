@@ -53,3 +53,7 @@ Autoclicker:
 DMDiskEditor ANTILOCK:
 > https://drive.google.com/drive/folders/1cIDCdilobbaNzZktwGnFJWrxA_nIWIGT?usp=drive_link
 > https://drive.google.com/file/d/1H4ebfdjPXHhDDma1XGS2oHvZSIkG0XZj/view?usp=sharing (c X:)
+>
+
+tftpx64:
+> https://drive.google.com/drive/folders/10s3lWHnEM7MxShAGjvzcpNAT59V10XxW?usp=sharing
