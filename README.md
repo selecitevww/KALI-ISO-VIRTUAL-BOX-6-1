@@ -30,7 +30,8 @@ Enjoykin — Брат
 > https://drive.google.com/file/d/1qplnSJROCi4FT0ATgyKwon-vEKmE4SYu/view?usp=drive_link
 >
 > https://drive.google.com/file/d/1fYTNJ3MD_a3Q3p4WpcPt6WUVypzuf2dT/view?usp=drive_link
->
+
+BAT: INVISE ADMIN BETA недоработка
 > https://drive.google.com/file/d/1BfL5LE87Tm_zxdkjKsuJMaj89GfFs56e/view?usp=drive_link
 >
 > https://drive.google.com/file/d/1iKq10z_AIALysfM7gwn_uQFFrzWiv8vD/view?usp=drive_link
@@ -47,3 +48,8 @@ DDU 15:
 
 Autoclicker:
 > https://drive.google.com/file/d/1SFqaIrlFc-bvpQ31PTN-F8Dpn0jw6y9s/view?usp=sharing
+>
+
+DMDiskEditor ANTILOCK:
+> https://drive.google.com/drive/folders/1cIDCdilobbaNzZktwGnFJWrxA_nIWIGT?usp=drive_link
+> https://drive.google.com/file/d/1H4ebfdjPXHhDDma1XGS2oHvZSIkG0XZj/view?usp=sharing (c X:)
