@@ -66,3 +66,10 @@ SEGA игры:
 
 > https://drive.google.com/file/d/1VAoHLlMQxdUpIuyJ0XsikanMy6dnrbBp/view?usp=sharing
 > https://drive.google.com/file/d/1chTp7oW1BUZ-8iNitLzisYrTTjfn-oO8/view?usp=sharing
+
+От Serega Strelec для сети:
+> https://drive.google.com/drive/folders/1xMWUhhfiQTAKbZViER7WAR8aZfy10cbI?usp=sharing
+
+
+Sanboxie:
+> https://drive.google.com/file/d/1wtX3MBcMpfiMYE2uKwcepQ1xmkWQi8QR/view?usp=sharing
