@@ -60,3 +60,9 @@ tftpx64:
 
 SEGA игры:
 > https://drive.google.com/drive/folders/1gukWmxmSBMRoAKx9xO6R9dfkf4mZzXwX?usp=sharing
+>
+
+Мебельный станок и пульсация пи****:
+
+> https://drive.google.com/file/d/1VAoHLlMQxdUpIuyJ0XsikanMy6dnrbBp/view?usp=sharing
+> https://drive.google.com/file/d/1chTp7oW1BUZ-8iNitLzisYrTTjfn-oO8/view?usp=sharing
