@@ -57,3 +57,6 @@ DMDiskEditor ANTILOCK:
 
 tftpx64:
 > https://drive.google.com/drive/folders/10s3lWHnEM7MxShAGjvzcpNAT59V10XxW?usp=sharing
+
+SEGA игры:
+> https://drive.google.com/drive/folders/1gukWmxmSBMRoAKx9xO6R9dfkf4mZzXwX?usp=sharing
