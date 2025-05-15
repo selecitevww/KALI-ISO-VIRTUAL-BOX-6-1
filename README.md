@@ -73,3 +73,8 @@ SEGA игры:
 
 Sanboxie:
 > https://drive.google.com/file/d/1wtX3MBcMpfiMYE2uKwcepQ1xmkWQi8QR/view?usp=sharing
+
+DDOS датчиками своего PC:
+> https://drive.google.com/file/d/17OEvBzt-ZD-gvzjNmoReGG2mvoNrwzkw/view?usp=sharing
+> https://drive.google.com/file/d/16Z3q30FAmRCt5SGyShJ2ErSZ1nyV2Nj2/view?usp=sharing
+> https://drive.google.com/file/d/16Z3q30FAmRCt5SGyShJ2ErSZ1nyV2Nj2/view?usp=sharing
