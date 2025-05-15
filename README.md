@@ -18,3 +18,17 @@ Enjoykin — Брат
 
 (Это для себя оставили) для личных целей можно не качать! (Пентестинг)
 > https://drive.google.com/file/d/1iJPODc7up2R6lvPSGUQhZS4VH6V-UBSZ/view?usp=sharing
+
+> https://drive.google.com/file/d/1SI6Hmi4rR4CzfWj0TBUCukiz-OIND3Gq/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1HDyPBuMyP0l4YEs97ZFJTE4ZI9uiZPIn/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1SGLZWUu2whnmIs89l7mf76_cR2TeiEvf/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1SI6Hmi4rR4CzfWj0TBUCukiz-OIND3Gq/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1qplnSJROCi4FT0ATgyKwon-vEKmE4SYu/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1fYTNJ3MD_a3Q3p4WpcPt6WUVypzuf2dT/view?usp=drive_link
+>
+> https://drive.google.com/file/d/1BfL5LE87Tm_zxdkjKsuJMaj89GfFs56e/view?usp=drive_link
