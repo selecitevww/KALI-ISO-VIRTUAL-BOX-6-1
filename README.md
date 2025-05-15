@@ -1,6 +1,6 @@
-# KALI-ISO-VIRTUAL-BOX-6-1
+# KALI-ISO-OVA-VIRTUAL-BOX-6-1
 
->https://shorturl.at/5AmD2
+>OVA: https://shorturl.at/5AmD2
 
 # VIRTUAL BOX репак от "кролика"
 > https://shorturl.at/dLqPT
