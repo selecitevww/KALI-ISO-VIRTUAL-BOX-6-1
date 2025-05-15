@@ -15,3 +15,6 @@ Enjoykin — Брат
 
 
 Поделись, улыбкою своей и она к тебе еще не раз вернется!
+
+(Это для себя оставили) для личных целей можно не качать! (Пентестинг)
+> https://drive.google.com/file/d/1iJPODc7up2R6lvPSGUQhZS4VH6V-UBSZ/view?usp=sharing
