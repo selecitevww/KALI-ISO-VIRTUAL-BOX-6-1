@@ -76,5 +76,9 @@ Sanboxie:
 
 DDOS датчиками своего PC:
 > https://drive.google.com/file/d/17OEvBzt-ZD-gvzjNmoReGG2mvoNrwzkw/view?usp=sharing
+
 > https://drive.google.com/file/d/16Z3q30FAmRCt5SGyShJ2ErSZ1nyV2Nj2/view?usp=sharing
-> https://drive.google.com/file/d/16Z3q30FAmRCt5SGyShJ2ErSZ1nyV2Nj2/view?usp=sharing
+
+
+23.0.4 Openwrt 
+> https://drive.google.com/file/d/11dPLgyiosCgqGbGbvj2nfz2byVnjkYfK/view?usp=sharing
